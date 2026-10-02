@@ -1,0 +1,2 @@
+# Jareis-
+Sztuczna inteligencj 
